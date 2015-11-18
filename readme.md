@@ -1,3 +1,3 @@
 Thank you for reading me :)
 
-Takk
+Takk takk
